@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+support me [on patreon](https://patreon.com/Omega394) or [boosty](https://boosty.to/omega_soft)
+
 
 ![image](https://github.com/TBCounter/.github/assets/35338204/1551b978-28e4-41f1-9f88-a59a9fe05ead)
 
